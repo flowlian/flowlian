@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @flowlian
-- Product Design @virira
+- Product Design @vivira
 - julian.perez.flow@gmail.com
 
 <!---
